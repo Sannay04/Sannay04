@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am a b.tect student<br>3rd year E.C.E<br>want to get in it industry<br>want to learn coading<br>and to make interesting projects
+I am a b.tect student<br>3rd year E.C.E<br>want to get in it industry<br>want to learn coading<br>and to make interesting projects
 
 
 ## 🌐 Socials:
